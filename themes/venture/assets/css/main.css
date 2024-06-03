@@ -16,6 +16,8 @@ h1,h2 {
 }
 
 header {
+  border-top: 5px black double;
+  border-bottom: 5px black double;
   font-family: "Rye";
   margin-bottom: 1rem;
   text-align: center;
