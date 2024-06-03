@@ -10,9 +10,11 @@ h1,h2 {
     font-family: "Rye";
 }
 
-.content p, .summary {
+.content, .summary {
   font-family: "Old Standard TT";
   font-size: larger;
+  margin-left: 10px;
+  margin-right: 10px;
 }
 
 header {
