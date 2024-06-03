@@ -1,4 +1,4 @@
-baseURL = 'https://example.org/'
+baseUrl = "ventureadventureweekly/"
 languageCode = 'en-us'
 title = 'The Venture Adventure Weekly'
 theme = 'venture'
