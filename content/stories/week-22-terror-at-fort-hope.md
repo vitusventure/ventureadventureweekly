@@ -24,9 +24,8 @@ All attention turned as the abomination screamed at the blast. Kenny stood froze
 
 Captain Joe of the Accord saw the beast and rallied on his regal steed with soldiers in tow. That broke the brief silence as all efforts focused on the leader of the UNDEAD MENACE. Kenny and Zigfrieda ran to the aid of their compatriot, Zigfrieda with blades and Kenny with the EQUALIZER blunderbuss.
 
-Now the goose was cooked for this horror. The REVANANT was distracted by some unseen force and the Blackmist crew got to work. A shout from Bob saw Kenny's deafening shot with the EQUALIZER land true! Zigfrieda's blades peeled away the insubstantial substance! Bob threw one of his many contraptions, a rocket propelled bloa designed exclusively for HORRORS FROM BEYOND.
+Now this horror's goose was cooked. The REVANANT was distracted by some unseen force and the Blackmist crew got to work. A shout from Bob saw Kenny's deafening shot with the EQUALIZER land true! Zigfrieda's blades peeled away the insubstantial substance! Bob threw one of his many contraptions, a rocket propelled bloa designed exclusively for HORRORS FROM BEYOND.
 
-A final shot from the EQUALIZER sent the fiendish beast back to hell. Cheers rang out from the fort as many lives were saved! The Blackmist were celebrated all night at the fort and treated to the most luxurious accommodations Fort Hope could muster. It looks like this skills of this group is not just an ACT!
+A final shot from the EQUALIZER sent the fiendish beast back to hell. Cheers rang out from the fort as many lives were saved! The Blackmist were celebrated all night at the fort and treated to the most luxurious accommodations Fort Hope could muster. It looks like this group's skills are not just an ACT!
 
 What will happen next? What amazing adventures will be found across the wild world that is Venture? Keep your eyes out for the next issue, and keep a silver in pocket so you won't miss it!
-
