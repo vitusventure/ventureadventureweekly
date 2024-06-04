@@ -1,12 +1,12 @@
 +++
-title = "Week 22 - Terror at Fort Hope"
+title = "Week 22 - Terror at Fort Unity"
 draft = false
 summary = "Accord fort ransacked by Undead Menace, saved by roving magician troupe!"
 +++
 
 # Accord base ransacked! Undead run amok!
 
-The quiet afternoon at the Accord controlled Fort Hope was shattered when hundreds of undead sprang from the ground WITHIN THE FORT WALLS. Soldiers scrambled against the grasping tide. Bodies both recently alive and recently undead littered the dirt. 
+The quiet afternoon at the Accord controlled Fort Unity was shattered when hundreds of undead sprang from the ground WITHIN THE FORT WALLS. Soldiers scrambled against the grasping tide. Bodies both recently alive and recently undead littered the dirt. 
 
 First hand accounts tell a harrowing tale of near disaster as the fort looked close to defeat. However, in the middle of the losing battle a new element joined the fray. The infamous magician troupe known as "The Blackmist" barreled headlong into danger. Currently performing their daring act "Blades II: The Cleavering", the group, consisting of headliner Kenny Blackwater and the mighty strong Zigfrieda (both supported by the stagemaster Bob Dobalina), plunged headlong into the fray!
 
@@ -26,6 +26,6 @@ Captain Joe of the Accord saw the beast and rallied on his regal steed with sold
 
 Now this horror's goose was cooked. The REVANANT was distracted by some unseen force and the Blackmist crew got to work. A shout from Bob saw Kenny's deafening shot with the EQUALIZER land true! Zigfrieda's blades peeled away the insubstantial substance! Bob threw one of his many contraptions, a rocket propelled bloa designed exclusively for HORRORS FROM BEYOND.
 
-A final shot from the EQUALIZER sent the fiendish beast back to hell. Cheers rang out from the fort as many lives were saved! The Blackmist were celebrated all night at the fort and treated to the most luxurious accommodations Fort Hope could muster. It looks like this group's skills are not just an ACT!
+A final shot from the EQUALIZER sent the fiendish beast back to hell. Cheers rang out from the fort as many lives were saved! The Blackmist were celebrated all night at the fort and treated to the most luxurious accommodations Fort Unity could muster. It looks like this group's skills are not just an ACT!
 
 What will happen next? What amazing adventures will be found across the wild world that is Venture? Keep your eyes out for the next issue, and keep a silver in pocket so you won't miss it!
